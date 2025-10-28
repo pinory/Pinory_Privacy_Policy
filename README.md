@@ -1,0 +1,2 @@
+# Pinory_Privacy_Policy
+Pinoryのプライバシーポリシー
